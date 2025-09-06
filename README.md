@@ -30,5 +30,5 @@
 ---
 
 ## 🚀 Try It Out  
-[▶ Download & Install APK](https://drive.google.com/file/d/1HE8zeIe_42FlmfboouZ6PZLD1lI1uJAS/view?usp=drive_link)  
+[⬇️ Download APK](https://drive.google.com/file/d/1HE8zeIe_42FlmfboouZ6PZLD1lI1uJAS/view?usp=drive_link)  
 
